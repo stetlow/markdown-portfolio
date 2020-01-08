@@ -7,3 +7,4 @@
 - Mary Oliver
 - indigo girls
 - Jeannette Winterston
+_ Cyndi Lauper
